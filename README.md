@@ -1,1 +1,0 @@
-# based_AR_testoltskh
